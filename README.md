@@ -4,7 +4,8 @@
   
 - Hot water: There was no hot water available for showers, although it should have been ready.
     
-- Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry.
+- Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry. The following video shows the washing machine being turned on, but there is no water inside. The machine is completely unusable for doing laundry. It serves as proof that the washing machine was not functional upon our arrival, which is part of the landlord’s failure to provide a properly habitable property.
+  > [Youtube] (https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, "Oct 17, 2025 The washing machine was not functional upon our arrival")
   
 - Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars.
   > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
@@ -18,13 +19,13 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
   
   > [Youtube] (https://youtu.be/Tfch7Tvb5VI?si=3-zbT5Gy4J_mXS0d, "Oct 20, 2025 9:34 Fire alaram kept going off for no reason")
   
-  > [Youtube] (https://youtu.be/wGKn9SY8_2o?si=PcRdPyx7NDRu6E8Z "Oct 20, 2025 10:08 Fire alarm kept going off for no reason")
+  > [Youtube] (https://youtu.be/wGKn9SY8_2o?si=PcRdPyx7NDRu6E8Z, "Oct 20, 2025 10:08 Fire alarm kept going off for no reason")
   
-  > [Youtube] (https://youtube.com/shorts/jPWRZaDSqd8?si=3xjiUwzrQl7bJVJs "Oct 20, 2025 10:15 Fire alarm kept going off for no reason")
+  > [Youtube] (https://youtube.com/shorts/jPWRZaDSqd8?si=3xjiUwzrQl7bJVJs, "Oct 20, 2025 10:15 Fire alarm kept going off for no reason")
   
-  > [Youtube] (https://youtu.be/SIX1_7fW-mg?si=Z86xCrbNmPr--ytc "Oct 20, 2025 10:23 Fire alarm kept going off for no reason")
+  > [Youtube] (https://youtu.be/SIX1_7fW-mg?si=Z86xCrbNmPr--ytc, "Oct 20, 2025 10:23 Fire alarm kept going off for no reason")
   
-  > [Youtube] (https://youtu.be/cvEalHxtVDE?si=B79Lbjt9fABkF4fo "Oct 20, 2025 10:33 Fire alarm kept going off for no reason")
+  > [Youtube] (https://youtu.be/cvEalHxtVDE?si=B79Lbjt9fABkF4fo, "Oct 20, 2025 10:33 Fire alarm kept going off for no reason")
 
 - Garbage: No garbage bin was provided, and we were not informed where or how to dispose of trash. We had already been living there for four to five days before the landlord finally explained the garbage disposal procedure.
 
