@@ -70,3 +70,5 @@ The persistent noise, psychological distress, and health deterioration are direc
 ### Tenant 2
 
 > [Google Drive] (https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs, "Tenant 2: skin irritation and ulceration around the buttocks area")
+
+> [Youtube] (https://youtube.com/shorts/lFoJE5ILPPs?si=SI9RRgLqk5EssDfo, "Poor girl is unable to walk due to the injured butt")
