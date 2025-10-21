@@ -56,6 +56,12 @@ During the first two days, I tried to tolerate the situation. However, from the 
 
 As a result, I have not had a full night of proper sleep for almost a week. My heart condition has been aggravated, my mind often feels unclear and disoriented, and I have experienced significant hair loss due to prolonged stress. I have been using Minoxidil (Rogaine) to restore my hair before, but the recent situation has caused a severe setback, undoing months of progress.
 
+In addition, I want to emphasize that these poor living conditions have also had a serious impact on my physical health as a woman.
+
+On the second day after I moved in, it happened to be the first day of my menstrual period. I always experience severe menstrual cramps on the first day, accompanied by heavy bleeding. However, because there was no hot water in the unit at that time, I could only use cold water to wash. As a result, my body temperature dropped, and I became sick the following day — I was in so much pain that I could not get out of bed for the entire day.
+
+Moreover, I have acid reflux (gastroesophageal reflux disease) and must eat clean, freshly prepared food. Normally, I cook for myself to manage my diet. But since the refrigerator was broken and could not keep food fresh, I was unable to buy or store meat, eggs, or vegetables. For the past several days, I have been forced to rely on takeout meals, which are oily and unhealthy. Because of this, my stomach condition has worsened again, and I am now experiencing frequent discomfort and indigestion.
+
 This ongoing situation has made it impossible for me to rest, focus, or study effectively. Consequently, I was unable to perform well in my academic assessments and failed one of my courses during this period.
 
 The persistent noise, psychological distress, and health deterioration are direct results of the landlord’s negligence and the uninhabitable condition of the property. This is no longer a matter of minor inconvenience but a serious violation of my right to live in a safe, peaceful, and healthy environment."
