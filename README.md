@@ -7,8 +7,10 @@
 - Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry. The following video shows the washing machine being turned on, but there is no water inside. The machine is completely unusable for doing laundry. It serves as proof that the washing machine was not functional upon our arrival, which is part of the landlord’s failure to provide a properly habitable property.
   > [Youtube] (https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
   
-- Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars.
+- Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before October 15, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
   > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
+
+  > [Youtube] (https://youtube.com/shorts/WsT4zaKCA4I?si=6joDH4Lr2S5FXD-A, "The smell of the refrigerator was so bad that the cleaning staff felt nauseous")
 
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
