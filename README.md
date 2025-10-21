@@ -34,6 +34,7 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
 - Parking: We were not informed where the parking space is. The lease states that a parking space is included, but it was not ready. We were told to use visitor parking, but we don’t know where that is.
   
 - Cleanliness: The property was not properly cleaned. When we moved in, our socks turned black just from walking inside.
+  > [Youtube] (https://youtube.com/shorts/rsVbJaO7fxU?si=Z-BmlQo1o4T9e7iV, "Socks turn black due to poor cleaning condition")
 
 - Keys: The lease states we should receive three keys, but we only received one. We now have to get additional keys made ourselves.
 
