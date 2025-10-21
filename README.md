@@ -10,9 +10,9 @@
   > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
 
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
-When the alarm first went off, we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
+When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help.
-  > [Youtube] (https://youtube.com/shorts/85dstiDAPgA?si=XiRV5WCob0gWh_pv, "")
+  > [Youtube] (https://youtube.com/shorts/85dstiDAPgA?si=XiRV5WCob0gWh_pv, "Oct 17, 2025 23:31 Fire alarm kept going off for no reason. We called the landlord but no response.")
   
   > [Youtube] (https://youtube.com/shorts/JmAZ6mcrOs0?si=ycwv0Ww2Kzc9Qt9A, "Oct 20, 2025 9:17 Fire alarm kept going off for no reason")
   
