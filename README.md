@@ -2,7 +2,7 @@
 ## Summary of Major Issues
 - Air conditioning: The AC was not properly set up before we moved in on the 15th. It should have been functional and able to provide heating, but it was not working properly.
   
-- Hot water: There was no hot water available for showers, although it should have been ready.
+- Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
     
 - Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry. The following video shows the washing machine being turned on, but there is no water inside. The machine is completely unusable for doing laundry. It serves as proof that the washing machine was not functional upon our arrival, which is part of the landlord’s failure to provide a properly habitable property.
   > [Youtube] (https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
