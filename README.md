@@ -12,12 +12,19 @@
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help.
+  > [Youtube] (https://youtube.com/shorts/85dstiDAPgA?si=XiRV5WCob0gWh_pv, "")
+  
   > [Youtube] (https://youtube.com/shorts/JmAZ6mcrOs0?si=ycwv0Ww2Kzc9Qt9A, "Oct 20, 2025 9:17 Fire alarm kept going off for no reason")
   
   > [Youtube] (https://youtu.be/Tfch7Tvb5VI?si=3-zbT5Gy4J_mXS0d, "Oct 20, 2025 9:34 Fire alaram kept going off for no reason")
   
   > [Youtube] (https://youtu.be/wGKn9SY8_2o?si=PcRdPyx7NDRu6E8Z "Oct 20, 2025 10:08 Fire alarm kept going off for no reason")
-  > 
+  
+  > [Youtube] (https://youtube.com/shorts/jPWRZaDSqd8?si=3xjiUwzrQl7bJVJs "Oct 20, 2025 10:15 Fire alarm kept going off for no reason")
+  
+  > [Youtube] (https://youtu.be/SIX1_7fW-mg?si=Z86xCrbNmPr--ytc "Oct 20, 2025 10:23 Fire alarm kept going off for no reason")
+  
+  > [Youtube] (https://youtu.be/cvEalHxtVDE?si=B79Lbjt9fABkF4fo "Oct 20, 2025 10:33 Fire alarm kept going off for no reason")
 
 - Garbage: No garbage bin was provided, and we were not informed where or how to dispose of trash. We had already been living there for four to five days before the landlord finally explained the garbage disposal procedure.
 
