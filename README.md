@@ -69,3 +69,4 @@ The persistent noise, psychological distress, and health deterioration are direc
 
 ### Tenant 2
 
+> [Google Drive] (https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs, "Tenant 2: skin irritation and ulceration around the buttocks area")
