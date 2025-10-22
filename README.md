@@ -1,13 +1,13 @@
 # Formal Complaint and Notice of Intent to File a Claim Regarding Breach of Lease and Unsafe Living Conditions
 ## Summary of Major Issues
-- Air conditioning: The AC was not properly set up before we moved in on the 15th. It should have been functional and able to provide heating, but it was not working properly.
+- Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly.
   
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
     
 - Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry. The following video shows the washing machine being turned on, but there is no water inside. The machine is completely unusable for doing laundry. It serves as proof that the washing machine was not functional upon our arrival, which is part of the landlord’s failure to provide a properly habitable property.
   > [Youtube] (https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
   
-- Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before October 15, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
+- Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before our arrival, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
   > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
 
   > [Youtube] (https://youtube.com/shorts/WsT4zaKCA4I?si=6joDH4Lr2S5FXD-A, "The smell of the refrigerator was so bad that the cleaning staff felt nauseous")
@@ -51,15 +51,15 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
 
 "The unsafe living conditions, particularly the continuous malfunction of the smoke alarm, have had a severe and escalating impact on my physical and mental health.
 
-For the past several days, the smoke alarm has been going off almost every morning between 8:00 and 10:00 AM, lasting intermittently for one to two hours. This problem has persisted for nearly a week. I have a pre-existing medical condition, myocarditis (heart inflammation), and I already struggle with sleep irregularities due to academic stress.
+For the past several days, the smoke alarm has been going off almost every morning between 9:00 and 11:00 AM, lasting intermittently for one to two hours. This problem has persisted for nearly a week. I have a pre-existing medical condition, myocarditis (heart inflammation), and I already struggle with sleep irregularities due to academic stress.
 
 During the first two days, I tried to tolerate the situation. However, from the third day onward, I began to experience anticipatory anxiety — knowing that the alarm would go off again around the same time caused extreme tension throughout the night. I became unable to fall asleep, constantly waiting for the noise to start. This mental strain triggered palpitations, nervous weakness, and insomnia, worsening my physical condition.
 
-As a result, I have not had a full night of proper sleep for almost a week. My heart condition has been aggravated, my mind often feels unclear and disoriented, and I have experienced significant hair loss due to prolonged stress. I have been using Minoxidil (Rogaine) to restore my hair before, but the recent situation has caused a severe setback, undoing months of progress.
+As a result, I have not had a full night of proper sleep for several days. My heart condition has been aggravated, my mind often feels unclear and disoriented, and I have experienced significant hair loss due to prolonged stress. I have been using Minoxidil (Rogaine) to restore my hair before, but the recent situation has caused a severe setback, undoing months of progress.
 
 In addition, I want to emphasize that these poor living conditions have also had a serious impact on my physical health as a woman.
 
-On the second day after I moved in, it happened to be the first day of my menstrual period. I always experience severe menstrual cramps on the first day, accompanied by heavy bleeding. However, because there was no hot water in the unit at that time, I could only use cold water to wash. As a result, my body temperature dropped, and I became sick the following day — I was in so much pain that I could not get out of bed for the entire day.
+On the first evening after I moved in, it happened to be the first day of my menstrual period. I always experience severe menstrual cramps on the first day, accompanied by heavy bleeding. However, because there was no hot water in the unit at that evening, I could only use cold water to wash. As a result, my body temperature dropped, and I became sick the following day — I was in so much pain that I could not get out of bed for the entire day.
 
 Moreover, I have acid reflux (gastroesophageal reflux disease) and must eat clean, freshly prepared food. Normally, I cook for myself to manage my diet. But since the refrigerator was broken and could not keep food fresh, I was unable to buy or store meat, eggs, or vegetables. For the past several days, I have been forced to rely on takeout meals, which are oily and unhealthy. Because of this, my stomach condition has worsened again, and I am now experiencing frequent discomfort and indigestion.
 
