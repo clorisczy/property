@@ -49,12 +49,14 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
 
 - Garbage: No garbage bin was provided, and we were not informed where or how to dispose of trash. We had already been living there for four to five days before the landlord finally explained the garbage disposal procedure.
 
-- Parking: We were not informed where the parking space is. The lease states that a parking space is included, but it was not ready. We were told to use visitor parking, but we don’t know where that is.
+- Parking: We were not informed where the parking space is. The lease states that a parking space is included, but it was not ready. We were told to use visitor parking, but we don’t know where that is. After several follow-ups from my agent, the landlord’s agent eventually mentioned that we could park in a temporary parking lot, but he never provided the exact location. We were unable to locate the temporary parking area, and neither the landlord nor the landlord’s agent came to show us where to park. They themselves did not know the exact location and only showed me a screenshot of the email sent by the management office.
+Furthermore, on the day of move-in, neither the landlord nor the landlord’s agent came to meet us or give us a walkthrough of the property. Instead, they simply left the keys in a location for us to pick up on our own.
   
 - Cleanliness: The property was not properly cleaned. When we moved in, our socks turned black just from walking inside. The landlord’s agent told us that the property had been thoroughly cleaned before we moved in. However, when we entered, the floors were covered with dust. The landlord’s agent explained that the dust was due to the ongoing construction outside, which they said was normal. I can understand there being some dust, but I don’t believe there would be this much dust inside with all the windows closed if the place had truly been cleaned recently. Regarding the cleaning issue, we reported this problem to the landlord’s agent on October 15, the day we moved in. However, the cleaning staff did not arrive until October 21.
   > [Youtube] (https://youtube.com/shorts/rsVbJaO7fxU?si=Z-BmlQo1o4T9e7iV, "Socks turn black due to poor cleaning condition")
 
   > [Google Drive] (https://drive.google.com/drive/folders/1bLqzYLGsh9n3347KWLUn4vwXUeP6z---, "Black socks and dirty feet after walking on the floor")
+  
 - Keys: The lease states we should receive three keys, but we only received one. We now have to get additional keys made ourselves. In the lease agreement, the landlord promised to provide us with three keys, but we only received one. I reported this issue to the landlord’s agent multiple times, but I never received any response. Because I had a severe skin infection near my lower body, which was still bleeding and made it extremely painful to walk, I was physically unable to go out on my own. Despite this, I had no choice but to take a taxi and personally go to make the additional keys. Below is the cost for making the three keys, which should be reimbursed by the landlord.
   
   > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "receipt for keys")
@@ -93,6 +95,15 @@ This ongoing situation has made it impossible for me to rest, focus, or study ef
 The persistent noise, psychological distress, and health deterioration are direct results of the landlord’s negligence and the uninhabitable condition of the property. This is no longer a matter of minor inconvenience but a serious violation of my right to live in a safe, peaceful, and healthy environment."
 
 ### Tenant 2
+"I was already in poor health, and my friend was on her menstrual period, suffering from severe menstrual pain during her midterm exams. Despite this, I had to endure my own physical discomfort to handle matters that should have been completed by the landlord before our move-in. The landlord and their agent even claimed that they had inspected the unit before our arrival—yet the refrigerator was broken. How could they have failed to notice it?
+
+When the landlord arranged for someone to install the curtains, I had to coordinate the schedule with the technician. First, the technician required us to take photos of the windows. I had to walk from the basement to the fourth floor to take and send these photos. Then, the installer scheduled a time to come and measure, and finally another appointment was needed for the actual installation. While these tasks may seem simple, they were extremely difficult for me physically. Each time I had to open doors, I had to walk from the fourth floor down to the entrance and stand nearby to communicate with them. Every trip caused bleeding down my legs, leaving bloodstains on the stairs and floors.
+
+I wanted to see a doctor, but the number of unresolved issues left by the landlord forced me to address these matters first. Even so, the landlord did not reply to our messages. The landlord’s agent only responded to one or two issues and suggested I make phone calls to arrange solutions myself. We made numerous calls, many of which were ineffective. The management office refused to help us because the building was not yet ready for occupancy. Since the landlord chose to rent out the unit, all responsibility should lie with them, and the management office was unwilling to assist.
+
+The problems were urgent and numerous: no hot water, the heating system not working, the washing machine unable to dispense water, the refrigerator not cooling, missing keys, curtains, and shower curtains. Despite repeatedly messaging the landlord with no response, the agent only provided a phone number and told us to contact the technician ourselves. The technician responsible for adjusting the hot water could not come immediately, and a video call failed to resolve the issue.
+
+As a result, we were forced to live for several days without heating, hot water, or a functioning washing machine. Many problems had to be solved entirely on our own."
 
 > [Google Drive] (https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs, "Tenant 2: skin irritation and ulceration around the buttocks area")
 
