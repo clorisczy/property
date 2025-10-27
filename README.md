@@ -1,6 +1,6 @@
 # Formal Complaint and Notice of Intent to File a Claim Regarding Breach of Lease and Unsafe Living Conditions
 ## Summary of Major Issues
-- Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly.
+- Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly. There are three tenants living in this unit. One of the female tenants was on her menstrual period and suffering from severe menstrual pain. The heating system was not working, and the unit was freezing cold. In addition, there was no hot water available for showering. Another female tenant had a bleeding wound near her lower body and was unable to walk properly, yet she still had to take on tasks that should have been handled by the landlord or the landlord’s agent. The third tenant is a male, but he works full-time in an office from 10 a.m. to 11 p.m. every day, so he is not at home during the day. As a result, only the two female tenants were left to deal with the issues that the landlord failed to address.
   
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
     
@@ -8,9 +8,33 @@
   > [Youtube] (https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
   
 - Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before our arrival, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
+The refrigerator in the unit was broken, so we were unable to store any food. As a result, every meal had to be ordered from takeout. However, since the property was not fully prepared, the front entrance was locked due to ongoing construction, and the back entrance was extremely difficult to locate. Every time we ordered food, I had to go all the way down from the fourth floor and walk a long distance to meet the delivery person, which caused significant physical strain. Every step I took was painful and caused bleeding, and my pajamas were covered in blood.
+
+At times, the pain was so severe that I wanted to see a doctor. However, because the landlord left so many unresolved issues in the unit, and with multiple technicians coming to the property every day, I had no choice but to stay home to let them in. For example:
+	1.	Curtain installation: I had to call, take photos myself and send them to the agent, schedule the measurement, and then coordinate the installation.
+	2.	Cleaning: I had to arrange the cleaning schedule, let the cleaners in, and inspect the cleaning from the first to the fourth floor.
+	3.	Refrigerator repair: I had to coordinate the technician’s visit, but initially the refrigerator was not repaired. Then we had to wait for the landlord to arrange a new refrigerator to be installed.
+
+Due to the landlord’s lack of timely responses, the issues piled up. The landlord’s agent would occasionally respond to one or two matters, but the refrigerator issue was urgent. The rotting food inside was emitting a foul and eye-watering smell that was unbearable.
+
+We even tried to hire a refrigerator technician ourselves to get it repaired first. Only then did the landlord’s technician contact us to inspect the refrigerator. We had to carefully coordinate the schedule to ensure that the refrigerator was cleaned by the cleaning staff before the technician arrived.
+
+The landlord’s agent repeatedly tried to shift responsibility onto us, claiming that all matters were being actively addressed and that we had refused the technician’s visit on October 20 at 6 p.m. In reality, we did not refuse; the refrigerator was full of rotten food and blood, and it was impossible for the technician to inspect it without proper cleaning. The cleaning staff could only come on October 21 at 9 a.m. Initially, the agent continued to blame us, but later the technician was rescheduled for October 21, at which point the agent stopped shifting responsibility onto us.
+
+The landlord’s agent stated that he and the landlord would come to assist us at the management office to resolve these issues. However, the next day they decided not to come and instead only wanted to have a phone call with us. In any case, they never came on-site to help us resolve the problems.
+
+I now demand that the landlord reimburse us for:
+	1.	The cost of spoiled food; and
+	2.	The takeout expenses incurred during the days without a working refrigerator.
+
+I will attach screenshots of the takeout orders and the estimated value of the spoiled food below. The link below also shows my lower-body wound and the blood-stained pajamas I was wearing.
   > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
 
   > [Youtube] (https://youtube.com/shorts/WsT4zaKCA4I?si=6joDH4Lr2S5FXD-A, "The smell of the refrigerator was so bad that the cleaning staff felt nauseous")
+
+  > [Youtube] (https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu, )
+
+  > [Youtube] (https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM, )
 
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
