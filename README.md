@@ -26,9 +26,9 @@ I will attach screenshots of the takeout orders and the estimated value of the s
 
   > [Youtube] (https://youtube.com/shorts/WsT4zaKCA4I?si=6joDH4Lr2S5FXD-A, "The smell of the refrigerator was so bad that the cleaning staff felt nauseous")
 
-  > [Youtube] (https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu, )
+  > [Youtube] (https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu, "Bloody pajamas")
 
-  > [Youtube] (https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM, )
+  > [Youtube] (https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM, "This is our own food that we put in the fridge, and it all went bad")
 
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
@@ -56,19 +56,19 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
 
   > [Google Drive] ()
 - Keys: The lease states we should receive three keys, but we only received one. We now have to get additional keys made ourselves. In the lease agreement, the landlord promised to provide us with three keys, but we only received one. I reported this issue to the landlord’s agent multiple times, but I never received any response. Because I had a severe skin infection near my lower body, which was still bleeding and made it extremely painful to walk, I was physically unable to go out on my own. Despite this, I had no choice but to take a taxi and personally go to make the additional keys. Below is the cost for making the three keys, which should be reimbursed by the landlord.
-> [Google Drive] ()
+  > [Google Drive] ()
 
 - Illegal rental: The management office explicitly stated that the landlord is not allowed to rent out this property, yet it was still rented to us.
 
 - Curtains and shower curtain: The lease stated that the curtains and shower curtain would be installed before the 15th, but they were not. As of now, neither the curtains nor the shower curtain have been installed. Before the lease started on October 15, I asked my agent to reconfirm with the landlord whether the curtains and shower curtains had been installed. The landlord’s agent replied that both had already been installed. However, when we actually moved in, we found that neither the curtains nor the shower curtains were in place. This constitutes a breach of the lease by the landlord. As a result, I had to go to Walmart to purchase a shower curtain myself.
-  Attached below is the receipt for the shower curtain, and the cost should be reimbursed by the landlord.
-> [Google Drive] ()
+Attached below is the receipt for the shower curtain, and the cost should be reimbursed by the landlord.
+  > [Google Drive] ()
 
 - Package/parcel delivery: We were not informed how to receive packages, what address to use, or how to pick them up. This is the landlord’s responsibility to explain to tenants in advance.
 
 - Floor damage: One section of the floor is damaged — when we step on it, it makes a loud creaking noise, which is very concerning and could indicate a structural problem.
 
-## More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.
+***More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.***
 
 ## Personal and Health Impact
 ### Tenant 1
