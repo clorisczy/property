@@ -59,13 +59,13 @@ Furthermore, on the day of move-in, neither the landlord nor the landlord’s ag
   
 - Keys: The lease states we should receive three keys, but we only received one. We now have to get additional keys made ourselves. In the lease agreement, the landlord promised to provide us with three keys, but we only received one. I reported this issue to the landlord’s agent multiple times, but I never received any response. Because I had a severe skin infection near my lower body, which was still bleeding and made it extremely painful to walk, I was physically unable to go out on my own. Despite this, I had no choice but to take a taxi and personally go to make the additional keys. Below is the cost for making the three keys, which should be reimbursed by the landlord.
   
-  > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "receipt for keys")
+  > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "Receipt for keys")
 
 - Illegal rental: The management office explicitly stated that the landlord is not allowed to rent out this property, yet it was still rented to us.
 
 - Curtains and shower curtain: The lease stated that the curtains and shower curtain would be installed before the 15th, but they were not. As of now, neither the curtains nor the shower curtain have been installed. Before the lease started on October 15, I asked my agent to reconfirm with the landlord whether the curtains and shower curtains had been installed. The landlord’s agent replied that both had already been installed. However, when we actually moved in, we found that neither the curtains nor the shower curtains were in place. This constitutes a breach of the lease by the landlord. As a result, I had to go to Walmart to purchase a shower curtain myself.
 Attached below is the receipt for the shower curtain, and the cost should be reimbursed by the landlord.
-  > [Google Drive] (https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk, "receipt for the shower curtains")
+  > [Google Drive] (https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk, "Receipt for the shower curtains")
 
 - Package/parcel delivery: We were not informed how to receive packages, what address to use, or how to pick them up. This is the landlord’s responsibility to explain to tenants in advance.
 
