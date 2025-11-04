@@ -105,6 +105,39 @@ The problems were urgent and numerous: no hot water, the heating system not work
 
 As a result, we were forced to live for several days without heating, hot water, or a functioning washing machine. Many problems had to be solved entirely on our own."
 
-> [Google Drive] (https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs, "Tenant 2: skin irritation and ulceration around the buttocks area")
+  > [Google Drive] (https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs, "Tenant 2: skin irritation and ulceration around the buttocks area")
 
-> [Youtube] (https://youtube.com/shorts/lFoJE5ILPPs?si=SI9RRgLqk5EssDfo, "Poor girl is unable to walk due to the injured butt")
+  > [Youtube] (https://youtube.com/shorts/lFoJE5ILPPs?si=SI9RRgLqk5EssDfo, "Poor girl is unable to walk due to the injured butt")
+
+## Property Loss
+My food loss amounts to approximately CAD 1043, which includes fish maw that I had soaked for three days (fish maw is a precious ingredient similar to bird’s nest, valued at CAD 300). The photos show my recent supermarket shopping records at Costco and TNT. Combined: 65.8+117.35+158.65+290+ 42.34+69.28+300 =1043 CAD 
+  > [Google Drive] (https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm, "Shopping records for the original food in the broken fridge")
+
+The following transaction records show the expenses incurred by the three of us from October 17, 2025 to October 23, 2025, during the period when the refrigerator in the house was broken. Because we were unable to cook at home, we had no choice but to order takeout or eat out.
+The total amount spent on takeout and dining out during this period is approximately $1,051 CAD.
+These expenses were directly caused by the refrigerator issue and should therefore be reimbursed by the landlord.
+  > [Google Drive] (https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC, "Food cost covered from October 17, 2025 to October 23, 2025")
+
+**The total amount that the landlord needs to compensate us (excluding any compensation for mental distress or time costs) is as follows:**
+
+	- Loss of food due to the broken refrigerator: $1,043
+	
+	- Takeout and dining expenses: $1,051
+	
+	- Bathroom shower curtain and hooks: $70.98
+	
+	- Key duplication: $33.87
+	
+	- Gas expenses (for driving out to eat, going to Walmart, and making keys): $50
+
+**Total: $2,248.85 CAD**
+  > [Google Drive] (https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm, "Shopping records for the original food in the broken fridge")
+
+  > [Google Drive] (https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC, "Food cost covered from October 17, 2025 to October 23, 2025")
+
+  > [Google Drive] (https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk, "Receipt for the shower curtains")
+
+  > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "Receipt for keys")
+
+
+
