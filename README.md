@@ -71,6 +71,9 @@ Attached below is the receipt for the shower curtain, and the cost should be rei
 
 - Floor damage: One section of the floor is damaged — when we step on it, it makes a loud creaking noise, which is very concerning and could indicate a structural problem.
 
+- Sensor light: The sensor light in the closet of the fourth-floor bedroom has been broken since we moved in. It has been on 24 hours a day without turning off. I reported this issue to the landlord, and he finally replied to me. However, he told me not to message him directly and asked me to contact his agent instead. I then informed the agent and asked him to send someone to fix it. He said “okay,” but after that, I never heard back — no one came to repair it, and there has been no further communication. This light has been on constantly, which seriously affects my rest.
+  > [Google Drive] (https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz, "The chat with the agent and the landlord about the broken sensor light in the closet of the fourth-floor bedroom")
+  
 ***More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.***
 
 ## Personal and Health Impact
