@@ -29,9 +29,9 @@ The landlord’s agent repeatedly tried to shift responsibility onto us, claimin
   > [Youtube] (https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu, "Bloody pajamas")
 
   > [Youtube] (https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM, "This is our own food that we put in the fridge, and it all went bad")
-When we first moved in, the refrigerator was already broken. On the 23rd, the landlord sent us a temporary fridge. However, the old broken one has been left in our living room ever since. We have asked the landlord several times to remove it, but he hasn’t responded.
+  When we first moved in, the refrigerator was already broken. On the 23rd, the landlord sent us a temporary fridge. However, the old broken one has been left in our living room ever since. We have asked the landlord several times to remove it, but he hasn’t responded.
 
-Our living room is already quite small, and now there are two fridges taking up the limited space. These two fridges have been sitting in our living room for three weeks, and we still haven’t received any reply about when they will be removed.
+  Our living room is already quite small, and now there are two fridges taking up the limited space. These two fridges have been sitting in our living room for three weeks, and we still haven’t received any reply about when they will be removed.
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help.
