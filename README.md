@@ -220,5 +220,4 @@ Section 29(1) – Tenant Remedies: Tenants may apply to the LTB for compensation
 
 Section 33 – Interference with Reasonable Enjoyment，
 
-Section 134 – Prohibited Charges
 
