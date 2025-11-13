@@ -14,7 +14,52 @@
 
 **Additional Compensation**: Refund equivalent to at least three months of rent, together with reasonable compensation for psychological distress resulting from unsafe living conditions and continuous disruptions.
 
-## Major Issues
+## Timeline Summary
+## 🕓 Timeline of Events
+
+| **Date** | **Event Description** | **Evidence / Link** | **Landlord / Agent Response** |
+|-----------|----------------------|----------------------|--------------------------------|
+| **Oct 15, 2025** | Lease began. Move-in day: no hot water, AC and heating not working, unit dirty, only one key provided instead of three. | Photos / videos in README | No on-site inspection; keys left for self-pickup. |
+| **Oct 15, 2025 (Evening)** | First night of menstrual period with no hot water; tenant forced to wash with cold water, became ill next day. | Tenant 1 statement | No assistance. |
+| **Oct 16–20, 2025** | Multiple requests to fix hot water and heating; washing machine still non-functional (no water). | [YouTube](https://youtu.be/DW_nqCBtrLU) | Promised plumber visit but no repair. |
+| **Oct 17, 2025 23:31** | Fire alarm began sounding for no reason at night. | [Video](https://youtube.com/shorts/85dstiDAPgA) | No response from landlord. |
+| **Oct 17, 2025** | Washing machine confirmed unusable on arrival. | [Video links](https://youtu.be/DW_nqCBtrLU) | No repair arranged. |
+| **Oct 18–19, 2025** | Tenant office contacted about fire alarm; office stated unit was *not legally rentable* and refused help. | Call record summary | Told to “contact lawyer and sue landlord.” |
+| **Oct 20, 2025 (09:17–10:33)** | Fire alarm continued going off for two hours intermittently (6 videos recorded). | [YouTube playlist](https://youtu.be/Tfch7Tvb5VI) | Office again refused help; said “Call 911.” |
+| **Oct 20, 2025 (18:00)** | Technician appointment for fridge allegedly “refused”; actually postponed because rotting food required cleaning. | Chat logs | Agent blamed tenant; later admitted reschedule. |
+| **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning; no follow-up fix. |
+| **Oct 22, 2025** | Fire alarm continued intermittently. | — | No repair. |
+| **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | [Video](https://youtube.com/shorts/JoMypI0QVAY) | No response to removal requests. |
+| **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
+| **Oct 27–30, 2025** | Washer and dryer still leaking water; floor damage noted. | Photos | No inspection. |
+| **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | [Drive chat](https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz) | No repair. |
+| **Mid-Oct → Early Nov, 2025** | Curtains & shower curtain missing despite lease promise; tenant bought own set. | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) | No reimbursement. |
+| **Late Oct, 2025** | Garbage disposal and parking not explained until 4–5 days after move-in. | — | Provided vague verbal directions. |
+| **Oct 15–31, 2025** | Continuous poor cleanliness (despite agent claim of pre-cleaning). Socks turn black when walking inside. | [Video](https://youtube.com/shorts/rsVbJaO7fxU) | Cleaning blamed on construction dust. |
+| **Oct 15–Nov 5, 2025** | Tenant 2 experienced worsening skin infection and bleeding while handling landlord’s tasks (curtains, repairs). | [Drive evidence](https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs) | No response; agent told tenant to call technicians. |
+| **Oct 17–23, 2025** | Refrigerator broken → food spoiled and take-out expenses incurred (CAD 1,043 + 1,051). | [Drive 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm), [Drive 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) | No reimbursement. |
+| **Nov 1–5, 2025** | Continued sleep disruption from fire alarm; tenant developed heart palpitations and hair loss. | [Medical report](https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view) | No response. |
+| **Nov 6, 2025** | Tenant found evidence of illegal subletting in building. | Photos / witness | Landlord denied. |
+| **Nov 7–10, 2025** | Tenants reported psychological distress and health issues due to ongoing problems. | Statements | No support. |
+| **Nov 11–15, 2025** | Tenant submitted written complaint and requested CAD 2,248.85 compensation. | Current README | Ignored. |
+| **Nov 18, 2025** | Formal Notice of Intent to File Claim issued to landlord / agent. | Demand draft | No reply. |
+
+
+## 💰 Summary of Financial Losses
+
+| **Category** | **Amount (CAD)** | **Source / Evidence** |
+|---------------|------------------|-----------------------|
+| Food loss | 1,043 | [Drive folder 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm) |
+| Take-out / dining expenses | 1,051 | [Drive folder 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) |
+| Shower curtain & hooks | 70.98 | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) |
+| Key duplication | 33.87 | [Receipt](https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view) |
+| Gas / transportation | 50 | Expense notes in README |
+| **Total Claimed Compensation** | **2,248.85 CAD** |  |
+
+
+
+
+## Detailed Description of Issues
 - Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly. There are three tenants living in this unit. One of the female tenants was on her menstrual period and suffering from severe menstrual pain. The heating system was not working, and the unit was freezing cold. In addition, there was no hot water available for showering. Another female tenant had a bleeding wound near her lower body and was unable to walk properly, yet she still had to take on tasks that should have been handled by the landlord or the landlord’s agent. The third tenant is a male, but he works full-time in an office from 10 a.m. to 11 p.m. every day, so he is not at home during the day. As a result, only the two female tenants were left to deal with the issues that the landlord failed to address.
   
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
