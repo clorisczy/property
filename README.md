@@ -25,11 +25,11 @@
 | **Oct 17, 2025 23:31** | Fire alarm began sounding for no reason at night. | [Video](https://youtube.com/shorts/85dstiDAPgA) | No response from landlord. |
 | **Oct 17, 2025** | Washing machine confirmed unusable on arrival. | [Video links](https://youtu.be/DW_nqCBtrLU) | No repair arranged. |
 | **Oct 18–19, 2025** | Tenant office contacted about fire alarm; office stated unit was *not legally rentable* and refused help. | Call record summary | Told to “contact lawyer and sue landlord.” |
-| **Oct 20, 2025 (09:17–10:33)** | Fire alarm continued going off for two hours intermittently (6 videos recorded). | [YouTube playlist](https://youtu.be/Tfch7Tvb5VI) | Office again refused help; said “Call 911.” |
+| **Oct 20, 2025 (09:17–10:33)** | Fire alarm continued going off for two hours intermittently (6 videos recorded). | Video | Office again refused help; said “Call 911.” |
 | **Oct 20, 2025 (18:00)** | Technician appointment for fridge allegedly “refused”; actually postponed because rotting food required cleaning. | Chat logs | Agent blamed tenant; later admitted reschedule. |
 | **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning |
 | **Oct 22, 2025** | Fire alarm continued intermittently. | — | No response. |
-| **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | [Video](https://youtube.com/shorts/JoMypI0QVAY) | No response to removal requests. |
+| **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | / | No response to removal requests. |
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
 | **Oct 27–30, 2025** | Washer and dryer still leaking water; floor damage noted. | Photos | No inspection. |
 | **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | [Drive chat](https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz) | No repair. |
@@ -40,7 +40,7 @@
 | **Oct 17–23, 2025** | Refrigerator broken → food spoiled and take-out expenses incurred (CAD 1,043 + 1,051). | [Drive 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm), [Drive 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) | No reimbursement. |
 | **Nov 1–5, 2025** | Continued sleep disruption from fire alarm; tenant developed heart palpitations and hair loss. | [Medical report](https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view) | No response. |
 | **Nov 6, 2025** | Tenant found evidence of illegal subletting in building. | Photos / witness | No response. |
-| **Nov 7–10, 2025** | Tenants reported psychological distress and health issues due to ongoing problems. | Statements | No support. |
+| **Nov 7–10, 2025** | Tenants developed psychological distress and health issues due to ongoing problems. | Statements | /|
 
 
 
