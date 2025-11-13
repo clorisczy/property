@@ -19,9 +19,9 @@
 
 | **Date** | **Event Description** | **Evidence / Link** | **Landlord / Agent Response** |
 |-----------|----------------------|----------------------|--------------------------------|
-| **Oct 17, 2025** | Move-in day: no hot water, AC and heating not working, unit dirty, only one key provided instead of three. | Photos / videos in README | No on-site inspection; keys left for self-pickup. |
+| **Oct 17, 2025** | Move-in day: no hot water, curtains and shower curtains. AC，refrigerator and heating not working, unit dirty, only one key provided instead of three. | Photos / videos in README | No on-site inspection; keys left for self-pickup. |
 | **Oct 17, 2025 (Evening)** | First night of menstrual period with no hot water; tenant forced to wash with cold water, became ill next day. | Tenant 1 statement | No resolution on that night. |
-| **Oct 15, 2025** | Multiple requests to fix hot water and heating; washing machine still non-functional (no water). | [YouTube](https://youtu.be/DW_nqCBtrLU) | Promised plumber visit but only next day morning. |
+| **Oct 17, 2025** | Multiple requests to fix hot water and heating; washing machine still non-functional (no water). | [YouTube](https://youtu.be/DW_nqCBtrLU) | Promised plumber visit but only next day morning. |
 | **Oct 17, 2025 23:31** | Fire alarm began sounding for no reason at night. | [Video](https://youtube.com/shorts/85dstiDAPgA) | No response from landlord. |
 | **Oct 17, 2025** | Washing machine confirmed unusable on arrival. | [Video links](https://youtu.be/DW_nqCBtrLU) | No repair arranged. |
 | **Oct 18–19, 2025** | Tenant office contacted about fire alarm; office stated unit was *not legally rentable* and refused help. | Call record summary | Told to “contact lawyer and sue landlord.” |
