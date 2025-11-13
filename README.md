@@ -149,8 +149,7 @@ These expenses were directly caused by the refrigerator issue and should therefo
   > [Google Drive] (https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk, "Receipt for the shower curtains")
 
   > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "Receipt for keys")
-
-**Legal Basis (Ontario Residential Tenancies Act, 2006)**
+## Legal Basis (Ontario Residential Tenancies Act, 2006)
 
 Section 20 – Maintenance Obligation: The landlord must maintain the rental unit in a good state of repair and fit for habitation.
 
