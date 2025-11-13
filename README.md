@@ -2,7 +2,7 @@
   >[Google Drive] (https://drive.google.com/file/d/1I0DTherlqzg-Cisxj4rCFr5KQvG66pVS/view?usp=drivesdk, "**Lease Agreement**"]
 ## Executive Summary
 
-**Property Address**: Apt 10-3069 Pharmacy Ave 14, Toronto E05 M1W 2H1
+**Property Address**: 3069 Pharmacy Ave 14, Toronto E05 M1W 2H1
 
 **Tenancy Period**: 15 Oct, 2025 – 15 Oct, 2026
 
