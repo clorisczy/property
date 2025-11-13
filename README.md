@@ -29,7 +29,9 @@ I will attach screenshots of the takeout orders and the estimated value of the s
   > [Youtube] (https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu, "Bloody pajamas")
 
   > [Youtube] (https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM, "This is our own food that we put in the fridge, and it all went bad")
+When we first moved in, the refrigerator was already broken. On the 23rd, the landlord sent us a temporary fridge. However, the old broken one has been left in our living room ever since. We have asked the landlord several times to remove it, but he hasn’t responded.
 
+Our living room is already quite small, and now there are two fridges taking up the limited space. These two fridges have been sitting in our living room for three weeks, and we still haven’t received any reply about when they will be removed.
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help.
@@ -71,8 +73,11 @@ Attached below is the receipt for the shower curtain, and the cost should be rei
 
 - Floor damage: One section of the floor is damaged — when we step on it, it makes a loud creaking noise, which is very concerning and could indicate a structural problem.
 
-- Sensor light: The sensor light in the closet of the fourth-floor bedroom has been broken since we moved in. It has been on 24 hours a day without turning off. I reported this issue to the landlord, and he finally replied to me. However, he told me not to message him directly and asked me to contact his agent instead. I then informed the agent and asked him to send someone to fix it. He said “okay,” but after that, I never heard back — no one came to repair it, and there has been no further communication. This light has been on constantly, which seriously affects my rest.
+- Sensor light: On October 31, 2025, I reported that the sensor light in the fourth-floor bedroom wardrobe has been constantly on. I sent messages to both the landlord and the agent. The landlord replied only once, telling me not to message him again. The agent said they would help me fix the issue, but they have been delaying it and have not taken any action. I sent several follow-up messages, but they only replied to one of them.
+The bedroom light has been on all the time, which not only wastes electricity but also seriously affects my sleep. I’ve been struggling with severe insomnia for a long time — I often can’t fall asleep until 5 or 6 a.m. Because of this light, I have to cover it with paper just to block the brightness. It’s having a serious impact on my health and weakening my immune system.
+We’ve been very good tenants and never bother the landlord unnecessarily. We always try to solve small issues on our own. However, the landlord’s attitude has been extremely poor. He refuses to take responsibility and even lied to us — first saying he was abroad and couldn’t respond, then saying he would come to fix the issue, but later claiming he couldn’t come and could only use Zoom instead. In fact, the only direct message we ever received from the landlord was the one telling us not to contact him; all other communication has been relayed through his agent.
   > [Google Drive] (https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz, "The chat with the agent and the landlord about the broken sensor light in the closet of the fourth-floor bedroom")
+  > [Google Drive] (https://drive.google.com/drive/folders/124MI_mifczwraK39-yxdYhnd2X8-xw6Z, "The chat with the agent about the light")
   
 ***More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.***
 
