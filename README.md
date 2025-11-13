@@ -1,5 +1,19 @@
 # Formal Complaint and Notice of Intent to File a Claim Regarding Breach of Lease and Unsafe Living Conditions
-## Summary of Major Issues
+## Executive Summary
+
+**Property Address**: Apt 10-3069 Pharmacy Ave 14, Toronto E05 M1W 2H1
+
+**Tenancy Period**: 15 Oct, 2025 – 15 Oct, 2026
+
+**Main Issues**: Lack of hot water, repeated fire alarm incidents, malfunctioning washer/dryer, broken refrigerator, excessive key deposit, unclean living condition, and illegal subletting.
+
+## Tenant’s Requests:
+
+**Financial Compensation**: Reimbursement of documented expenses totaling CAD 2,248.85 for direct financial losses (food spoilage, take-out meals, transportation, cleaning supplies, and other related costs).
+
+**Additional Compensation**: Refund equivalent to at least three months of rent, together with reasonable compensation for psychological distress resulting from unsafe living conditions and continuous disruptions.
+
+## Major Issues
 - Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly. There are three tenants living in this unit. One of the female tenants was on her menstrual period and suffering from severe menstrual pain. The heating system was not working, and the unit was freezing cold. In addition, there was no hot water available for showering. Another female tenant had a bleeding wound near her lower body and was unable to walk properly, yet she still had to take on tasks that should have been handled by the landlord or the landlord’s agent. The third tenant is a male, but he works full-time in an office from 10 a.m. to 11 p.m. every day, so he is not at home during the day. As a result, only the two female tenants were left to deal with the issues that the landlord failed to address.
   
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
