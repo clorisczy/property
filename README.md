@@ -20,7 +20,7 @@ The landlord’s agent repeatedly tried to shift responsibility onto us, claimin
   The landlord’s agent stated that he and the landlord would come to assist us at the management office to resolve these issues. However, the next day they decided not to come and instead only wanted to have a phone call with us. In any case, they never came on-site to help us resolve the problems. I now demand that the landlord reimburse us for:
 	1.	The cost of spoiled food; and
 	2.	The takeout expenses incurred during the days without a working refrigerator.
-I will attach screenshots of the takeout orders and the estimated value of the spoiled food below. The link below also shows my lower-body wound and the blood-stained pajamas I was wearing.
+  I will attach screenshots of the takeout orders and the estimated value of the spoiled food below. The link below also shows my lower-body wound and the blood-stained pajamas I was wearing.
 
   > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
 
