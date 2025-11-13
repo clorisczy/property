@@ -15,7 +15,7 @@
 **Additional Compensation**: Refund equivalent to at least three months of rent, together with reasonable compensation for psychological distress resulting from unsafe living conditions and continuous disruptions.
 
 ## Timeline Summary
-## 🕓 Timeline of Events
+### 🕓 Timeline of Events
 
 | **Date** | **Event Description** | **Evidence / Link** | **Landlord / Agent Response** |
 |-----------|----------------------|----------------------|--------------------------------|
@@ -44,7 +44,7 @@
 
 
 
-## 💰 Summary of Financial Losses
+### 💰 Summary of Financial Losses
 
 | **Category** | **Amount (CAD)** | **Source / Evidence** |
 |---------------|------------------|-----------------------|
