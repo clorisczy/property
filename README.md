@@ -77,6 +77,7 @@ Attached below is the receipt for the shower curtain, and the cost should be rei
 The bedroom light has been on all the time, which not only wastes electricity but also seriously affects my sleep. I’ve been struggling with severe insomnia for a long time — I often can’t fall asleep until 5 or 6 a.m. Because of this light, I have to cover it with paper just to block the brightness. It’s having a serious impact on my health and weakening my immune system.
 We’ve been very good tenants and never bother the landlord unnecessarily. We always try to solve small issues on our own. However, the landlord’s attitude has been extremely poor. He refuses to take responsibility and even lied to us — first saying he was abroad and couldn’t respond, then saying he would come to fix the issue, but later claiming he couldn’t come and could only use Zoom instead. In fact, the only direct message we ever received from the landlord was the one telling us not to contact him; all other communication has been relayed through his agent.
   > [Google Drive] (https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz, "The chat with the agent and the landlord about the broken sensor light in the closet of the fourth-floor bedroom")
+  
   > [Google Drive] (https://drive.google.com/drive/folders/124MI_mifczwraK39-yxdYhnd2X8-xw6Z, "The chat with the agent about the light")
   
 ***More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.***
