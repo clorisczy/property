@@ -150,5 +150,13 @@ These expenses were directly caused by the refrigerator issue and should therefo
 
   > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "Receipt for keys")
 
+**Legal Basis (Ontario Residential Tenancies Act, 2006)**
 
+Section 20 – Maintenance Obligation: The landlord must maintain the rental unit in a good state of repair and fit for habitation.
+
+Section 21 – Vital Services: The landlord must ensure heating, plumbing, hot water, and appliances are operational.
+
+Section 134 – Prohibited Charges: The landlord cannot demand deposits or charges beyond what the Act allows.
+
+Section 29(1) – Tenant Remedies: Tenants may apply to the LTB for compensation or orders when the landlord fails to meet obligations.
 
