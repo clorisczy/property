@@ -39,7 +39,7 @@
 | **Oct 15–Nov 5, 2025** | Tenant 2 experienced worsening skin infection and bleeding while handling landlord’s tasks (curtains, repairs). | [Drive evidence](https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs) | No response; agent told tenant to call technicians. |
 | **Oct 17–23, 2025** | Refrigerator broken → food spoiled and take-out expenses incurred (CAD 1,043 + 1,051). | [Drive 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm), [Drive 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) | No reimbursement. |
 | **Nov 1–5, 2025** | Continued sleep disruption from fire alarm; tenant developed heart palpitations and hair loss. | [Medical report](https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view) | No response. |
-| **Nov 6, 2025** | Tenant found evidence of illegal subletting in building. | Photos / witness | No response. |
+| **Nov 6, 2025** | Tenant found evidence of illegal subletting in building. | Witness | No response. |
 | **Nov 7–10, 2025** | Tenants developed psychological distress and health issues due to ongoing problems. | Statements | /|
 
 
