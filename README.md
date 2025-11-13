@@ -218,3 +218,5 @@ Section 134 – Prohibited Charges: The landlord cannot demand deposits or charg
 
 Section 29(1) – Tenant Remedies: Tenants may apply to the LTB for compensation or orders when the landlord fails to meet obligations.
 
+Section 33 – Interference with Reasonable Enjoyment，
+
