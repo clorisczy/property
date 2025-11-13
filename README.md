@@ -103,6 +103,8 @@ This ongoing situation has made it impossible for me to rest, focus, or study ef
 
 The persistent noise, psychological distress, and health deterioration are direct results of the landlord’s negligence and the uninhabitable condition of the property. This is no longer a matter of minor inconvenience but a serious violation of my right to live in a safe, peaceful, and healthy environment."
 
+  >[Google Drive] (https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view?usp=drivesdk, "Gastroscope Report diagnosed as GERD")
+
 ### Tenant 2
 "I was already in poor health, and my friend was on her menstrual period, suffering from severe menstrual pain during her midterm exams. Despite this, I had to endure my own physical discomfort to handle matters that should have been completed by the landlord before our move-in. The landlord and their agent even claimed that they had inspected the unit before our arrival—yet the refrigerator was broken. How could they have failed to notice it?
 
