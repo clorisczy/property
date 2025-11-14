@@ -29,8 +29,7 @@
 | **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (nearly one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning |
 | **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests. |
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
-| **Oct 29, 2025** | Fire alarm continued intermittently. | [YouTube](https://youtu.be/PdBEXRv8Hyg)
- | - |
+| **Oct 29, 2025** | Fire alarm continued intermittently. | [YouTube](https://youtu.be/PdBEXRv8Hyg)| - |
 | **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | [Drive chat](https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz) | No repair. |
 | **Oct 15 → Oct 20, 2025** | Curtains & shower curtain missing despite lease promise; tenant bought own set. | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) | Promised fee cover |
 | **Oct 15–20, 2025** | Continuous poor cleanliness (despite agent claim of pre-cleaning). Socks turn black when walking inside. | [Video](https://youtube.com/shorts/rsVbJaO7fxU) | Cleaning blamed on construction dust. |
@@ -60,7 +59,7 @@
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
     
 - Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry. The following video shows the washing machine being turned on, but there is no water inside. The machine is completely unusable for doing laundry. It serves as proof that the washing machine was not functional upon our arrival, which is part of the landlord’s failure to provide a properly habitable property.
-  > [Youtube](https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
+  > [YouTube 1](https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ), [YouTube 2](https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo) — *Oct 17, 2025: The washing machine was not functional upon our arrival*
   
 - Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before our arrival, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
 The refrigerator in the unit was broken, so we were unable to store any food. As a result, every meal had to be ordered from takeout. However, since the property was not fully prepared, the front entrance was locked due to ongoing construction, and the back entrance was extremely difficult to locate. Every time we ordered food, I had to go all the way down from the fourth floor and walk a long distance to meet the delivery person, which caused significant physical strain. Every step I took was painful and caused bleeding, and my pajamas were covered in blood. At times, the pain was so severe that I wanted to see a doctor. However, because the landlord left so many unresolved issues in the unit, and with multiple technicians coming to the property every day, I had no choice but to stay home to let them in. For example:
@@ -77,34 +76,36 @@ The landlord’s agent repeatedly tried to shift responsibility onto us, claimin
 	2.	The takeout expenses incurred during the days without a working refrigerator.
   I will attach screenshots of the takeout orders and the estimated value of the spoiled food below. The link below also shows my lower-body wound and the blood-stained pajamas I was wearing.
 
-  > [Youtube] (https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu, "According to the cleaning staff, the refrigerator was out of order and could not keep food cold.")
+  > [YouTube](https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu) — *According to the cleaning staff, the refrigerator was out of order and could not keep food cold.*
 
-  > [Youtube] (https://youtube.com/shorts/WsT4zaKCA4I?si=6joDH4Lr2S5FXD-A, "The smell of the refrigerator was so bad that the cleaning staff felt nauseous")
+  > [YouTube](https://youtube.com/shorts/WsT4zaKCA4I?si=6joDH4Lr2S5FXD-A) — *The smell of the refrigerator was so bad that the cleaning staff felt nauseous.*
 
-  > [Youtube] (https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu, "Bloody pajamas")
+  > [YouTube](https://youtube.com/shorts/lFYSR9BgirE?si=ggToqzHQoOR_70Wu) — *Bloody pajamas.*
 
-  > [Youtube] (https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM, "This is our own food that we put in the fridge, and it all went bad")
+  > [YouTube](https://youtube.com/shorts/JoMypI0QVAY?si=NRyrTNtG8F-s4wJM) — *This is our own food that we put in the fridge, and it all went bad.*
+
   When we first moved in, the refrigerator was already broken. On the 23rd, the landlord sent us a temporary fridge. However, the old broken one has been left in our living room ever since. We have asked the landlord several times to remove it, but he hasn’t responded.
 
   Our living room is already quite small, and now there are two fridges taking up the limited space. These two fridges have been sitting in our living room for three weeks, and we still haven’t received any reply about when they will be removed.
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help. 
-  > [Youtube] (https://youtube.com/shorts/85dstiDAPgA?si=XiRV5WCob0gWh_pv, "Oct 17, 2025 23:31 Fire alarm kept going off for no reason. We called the landlord but no response.")
-  
-  > [Youtube] (https://youtube.com/shorts/JmAZ6mcrOs0?si=ycwv0Ww2Kzc9Qt9A, "Oct 20, 2025 9:17 Fire alarm kept going off for no reason")
-  
-  > [Youtube] (https://youtu.be/Tfch7Tvb5VI?si=3-zbT5Gy4J_mXS0d, "Oct 20, 2025 9:34 Fire alaram kept going off for no reason")
-  
-  > [Youtube] (https://youtu.be/wGKn9SY8_2o?si=PcRdPyx7NDRu6E8Z, "Oct 20, 2025 10:08 Fire alarm kept going off for no reason")
-  
-  > [Youtube] (https://youtube.com/shorts/jPWRZaDSqd8?si=3xjiUwzrQl7bJVJs, "Oct 20, 2025 10:15 Fire alarm kept going off for no reason")
-  
-  > [Youtube] (https://youtu.be/SIX1_7fW-mg?si=Z86xCrbNmPr--ytc, "Oct 20, 2025 10:23 Fire alarm kept going off for no reason")
-  
-  > [Youtube] (https://youtu.be/cvEalHxtVDE?si=B79Lbjt9fABkF4fo, "Oct 20, 2025 10:33 Fire alarm kept going off for no reason")
+  > [YouTube](https://youtube.com/shorts/85dstiDAPgA?si=XiRV5WCob0gWh_pv) — *Oct 17, 2025 23:31 Fire alarm kept going off for no reason. We called the landlord but no response.*
 
-  > [Youtube] (https://youtube.com/shorts/PdBEXRv8Hyg?si=sKxywcL0r1dw5Yrm, "Oct 29, 2025 11:20 Fire alarm continued intermittently.")
+  > [YouTube](https://youtube.com/shorts/JmAZ6mcrOs0?si=ycwv0Ww2Kzc9Qt9A) — *Oct 20, 2025 09:17 Fire alarm kept going off for no reason.*
+
+  > [YouTube](https://youtu.be/Tfch7Tvb5VI?si=3-zbT5Gy4J_mXS0d) — *Oct 20, 2025 09:34 Fire alarm kept going off for no reason.*
+
+  > [YouTube](https://youtu.be/wGKn9SY8_2o?si=PcRdPyx7NDRu6E8Z) — *Oct 20, 2025 10:08 Fire alarm kept going off for no reason.*
+
+  > [YouTube](https://youtube.com/shorts/jPWRZaDSqd8?si=3xjiUwzrQl7bJVJs) — *Oct 20, 2025 10:15 Fire alarm kept going off for no reason.*
+
+  > [YouTube](https://youtu.be/SIX1_7fW-mg?si=Z86xCrbNmPr--ytc) — *Oct 20, 2025 10:23 Fire alarm kept going off for no reason.*
+
+  > [YouTube](https://youtu.be/cvEalHxtVDE?si=B79Lbjt9fABkF4fo) — *Oct 20, 2025 10:33 Fire alarm kept going off for no reason.*
+
+  > [YouTube](https://youtube.com/shorts/PdBEXRv8Hyg?si=sKxywcL0r1dw5Yrm) — *Oct 29, 2025 11:20 Fire alarm continued intermittently.*
+
 
 - Garbage: No garbage bin was provided, and we were not informed where or how to dispose of trash. We had already been living there for four to five days before the landlord finally explained the garbage disposal procedure.
 
@@ -112,19 +113,20 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
 Furthermore, on the day of move-in, neither the landlord nor the landlord’s agent came to meet us or give us a walkthrough of the property. Instead, they simply left the keys in a location for us to pick up on our own.
   
 - Cleanliness: The property was not properly cleaned. When we moved in, our socks turned black just from walking inside. The landlord’s agent told us that the property had been thoroughly cleaned before we moved in. However, when we entered, the floors were covered with dust. The landlord’s agent explained that the dust was due to the ongoing construction outside, which they said was normal. I can understand there being some dust, but I don’t believe there would be this much dust inside with all the windows closed if the place had truly been cleaned recently. Regarding the cleaning issue, we reported this problem to the landlord’s agent on October 15, the day we moved in. However, the cleaning staff did not arrive until October 21.
-  > [Youtube] (https://youtube.com/shorts/rsVbJaO7fxU?si=Z-BmlQo1o4T9e7iV, "Socks turn black due to poor cleaning condition")
+  > [YouTube](https://youtube.com/shorts/rsVbJaO7fxU?si=Z-BmlQo1o4T9e7iV) — *Socks turn black due to poor cleaning condition.*
 
-  > [Google Drive] (https://drive.google.com/drive/folders/1bLqzYLGsh9n3347KWLUn4vwXUeP6z---, "Black socks and dirty feet after walking on the floor")
-  
+  > [Google Drive](https://drive.google.com/drive/folders/1bLqzYLGsh9n3347KWLUn4vwXUeP6z---) — *Black socks and dirty feet after walking on the floor.*
+
+ 
 - Keys: The lease states we should receive three keys, but we only received one. We now have to get additional keys made ourselves. In the lease agreement, the landlord promised to provide us with three keys, but we only received one. I reported this issue to the landlord’s agent multiple times, but I never received any response. Because I had a severe skin infection near my lower body, which was still bleeding and made it extremely painful to walk, I was physically unable to go out on my own. Despite this, I had no choice but to take a taxi and personally go to make the additional keys. Below is the cost for making the three keys, which should be reimbursed by the landlord.
   
-  > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "Receipt for keys")
+  > [Google Drive](https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk) — *Receipt for keys.*
 
 - Illegal rental: The management office explicitly stated that the landlord is not allowed to rent out this property, yet it was still rented to us.
 
 - Curtains and shower curtain: The lease stated that the curtains and shower curtain would be installed before the 15th, but they were not. As of now, neither the curtains nor the shower curtain have been installed. Before the lease started on October 15, I asked my agent to reconfirm with the landlord whether the curtains and shower curtains had been installed. The landlord’s agent replied that both had already been installed. However, when we actually moved in, we found that neither the curtains nor the shower curtains were in place. This constitutes a breach of the lease by the landlord. As a result, I had to go to Walmart to purchase a shower curtain myself.
 Attached below is the receipt for the shower curtain, and the cost should be reimbursed by the landlord.
-  > [Google Drive] (https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk, "Receipt for the shower curtains")
+  > [Google Drive](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk) — *Receipt for the shower curtains.*
 
 - Package/parcel delivery: We were not informed how to receive packages, what address to use, or how to pick them up. This is the landlord’s responsibility to explain to tenants in advance.
 
@@ -133,10 +135,10 @@ Attached below is the receipt for the shower curtain, and the cost should be rei
 - Sensor light: On October 31, 2025, I reported that the sensor light in the fourth-floor bedroom wardrobe has been constantly on. I sent messages to both the landlord and the agent. The landlord replied only once, telling me not to message him again. The agent said they would help me fix the issue, but they have been delaying it and have not taken any action. I sent several follow-up messages, but they only replied to one of them.
 The bedroom light has been on all the time, which not only wastes electricity but also seriously affects my sleep. I’ve been struggling with severe insomnia for a long time — I often can’t fall asleep until 5 or 6 a.m. Because of this light, I have to cover it with paper just to block the brightness. It’s having a serious impact on my health and weakening my immune system.
 We’ve been very good tenants and never bother the landlord unnecessarily. We always try to solve small issues on our own. However, the landlord’s attitude has been extremely poor. He refuses to take responsibility and even lied to us — first saying he was abroad and couldn’t respond, then saying he would come to fix the issue, but later claiming he couldn’t come and could only use Zoom instead. In fact, the only direct message we ever received from the landlord was the one telling us not to contact him; all other communication has been relayed through his agent.
-  > [Google Drive] (https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz, "The chat with the agent and the landlord about the broken sensor light in the closet of the fourth-floor bedroom")
-  
-  > [Google Drive] (https://drive.google.com/drive/folders/124MI_mifczwraK39-yxdYhnd2X8-xw6Z, "The chat with the agent about the light")
-  
+  > [Google Drive](https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz) — *The chat with the agent and the landlord about the broken sensor light in the closet of the fourth-floor bedroom.*
+
+  > [Google Drive](https://drive.google.com/drive/folders/124MI_mifczwraK39-yxdYhnd2X8-xw6Z) — *The chat with the agent about the light.*
+
 ***More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.***
 
 ## Personal and Health Impact
@@ -160,7 +162,7 @@ This ongoing situation has made it impossible for me to rest, focus, or study ef
 
 The persistent noise, psychological distress, and health deterioration are direct results of the landlord’s negligence and the uninhabitable condition of the property. This is no longer a matter of minor inconvenience but a serious violation of my right to live in a safe, peaceful, and healthy environment."
 
-  >[Google Drive] (https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view?usp=drivesdk, "Gastroscope Report diagnosed as GERD")
+  > [Google Drive](https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view?usp=drivesdk) — *Gastroscope Report diagnosed as GERD.*
 
 ### Tenant 2
 "I was already in poor health, and my friend was on her menstrual period, suffering from severe menstrual pain during her midterm exams. Despite this, I had to endure my own physical discomfort to handle matters that should have been completed by the landlord before our move-in. The landlord and their agent even claimed that they had inspected the unit before our arrival—yet the refrigerator was broken. How could they have failed to notice it?
@@ -173,18 +175,19 @@ The problems were urgent and numerous: no hot water, the heating system not work
 
 As a result, we were forced to live for several days without heating, hot water, or a functioning washing machine. Many problems had to be solved entirely on our own."
 
-  > [Google Drive] (https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs, "Tenant 2: skin irritation and ulceration around the buttocks area")
+  > [Google Drive](https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs) — *Tenant 2: skin irritation and ulceration around the buttocks area.*
 
-  > [Youtube] (https://youtube.com/shorts/lFoJE5ILPPs?si=SI9RRgLqk5EssDfo, "Poor girl is unable to walk due to the injured butt")
+  > [YouTube](https://youtube.com/shorts/lFoJE5ILPPs?si=SI9RRgLqk5EssDfo) — *Poor girl is unable to walk due to the injured butt.*
+
 
 ## Property Loss
 My food loss amounts to approximately CAD 1043, which includes fish maw that I had soaked for three days (fish maw is a precious ingredient similar to bird’s nest, valued at CAD 300). The photos show my recent supermarket shopping records at Costco and TNT. Combined: 65.8+117.35+158.65+290+ 42.34+69.28+300 =1043 CAD 
-  > [Google Drive] (https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm, "Shopping records for the original food in the broken fridge")
+  > [Google Drive](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm) — *Shopping records for the original food in the broken fridge.*
 
 The following transaction records show the expenses incurred by the three of us from October 17, 2025 to October 23, 2025, during the period when the refrigerator in the house was broken. Because we were unable to cook at home, we had no choice but to order takeout or eat out.
 The total amount spent on takeout and dining out during this period is approximately $1,051 CAD.
 These expenses were directly caused by the refrigerator issue and should therefore be reimbursed by the landlord.
-  > [Google Drive] (https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC, "Food cost covered from October 17, 2025 to October 23, 2025")
+  > [Google Drive](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) — *Food cost covered from October 17, 2025 to October 23, 2025.*
 
 **The total amount that the landlord needs to compensate us (excluding any compensation for mental distress or time costs) is as follows:**
 
@@ -199,13 +202,14 @@ These expenses were directly caused by the refrigerator issue and should therefo
 	- Gas expenses (for driving out to eat, going to Walmart, and making keys): $50
 
 **Total: $2,248.85 CAD**
-  > [Google Drive] (https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm, "Shopping records for the original food in the broken fridge")
+  > [Google Drive](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm) — *Shopping records for the original food in the broken fridge.*
 
-  > [Google Drive] (https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC, "Food cost covered from October 17, 2025 to October 23, 2025")
+  > [Google Drive](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) — *Food cost covered from October 17, 2025 to October 23, 2025.*
 
-  > [Google Drive] (https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk, "Receipt for the shower curtains")
+  > [Google Drive](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view?usp=drivesdk) — *Receipt for the shower curtains.*
 
-  > [Google Drive] (https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk, "Receipt for keys")
+  > [Google Drive](https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk) — *Receipt for keys.*
+
 ## Legal Basis (Ontario Residential Tenancies Act, 2006)
 
 Section 20 – Maintenance Obligation: The landlord must maintain the rental unit in a good state of repair and fit for habitation.
