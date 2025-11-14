@@ -183,6 +183,7 @@ In the face of such clear evidence, I truly do not understand what the landlord 
 
   > [YouTube](https://youtube.com/shorts/lFoJE5ILPPs?si=SI9RRgLqk5EssDfo) — *Poor girl is unable to walk due to the injured butt.*
 
+  > [Google Drive](https://drive.google.com/drive/folders/1ENMMNN_QrbETKNzHEdbVpaIE4ZETkOoD) — *Female Pelvis.*
 
 ## Property Loss
 My food loss amounts to approximately CAD 1043, which includes fish maw that I had soaked for three days (fish maw is a precious ingredient similar to bird’s nest, valued at CAD 300). The photos show my recent supermarket shopping records at Costco and TNT. Combined: 65.8+117.35+158.65+290+ 42.34+69.28+300 =1043 CAD 
