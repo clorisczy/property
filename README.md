@@ -26,7 +26,7 @@
 | **Oct 18–19, 2025** | Tenant office contacted about fire alarm; office stated unit was *not legally rentable* and refused help. | Call record summary | Told to “contact lawyer and sue landlord.” |
 | **Oct 20, 2025 (09:17–10:33)** | Fire alarm continued going off for two hours intermittently (6 videos recorded). | Video | Office again refused help; said “Call 911.” |
 | **Oct 20, 2025 (18:00)** | Technician appointment for fridge allegedly “refused”; actually postponed because rotting food required cleaning. | Chat logs | Agent blamed tenant; later admitted reschedule. |
-| **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning |
+| **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (nearly one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning |
 | **Oct 22, 2025** | Fire alarm continued intermittently. | Video | No response. |
 | **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests. |
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
