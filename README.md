@@ -44,8 +44,8 @@
 
 | **Category** | **Amount (CAD)** | **Source / Evidence** |
 |---------------|------------------|-----------------------|
-| Food loss | 1,043 | [Drive folder 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm) |
-| Take-out / dining expenses | 1,051 | [Drive folder 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) |
+| Food loss | 1,043 | [Drive](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm) |
+| Take-out / dining expenses | 1,051 | [Drive](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) |
 | Shower curtain & hooks | 70.98 | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) |
 | Key duplication | 33.87 | [Receipt](https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view) |
 | Gas / transportation | 50 | Expense notes in README |
@@ -60,7 +60,7 @@
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
     
 - Washing machine: The washing machine was not functional upon our arrival — there was no water, so we could not do laundry. The following video shows the washing machine being turned on, but there is no water inside. The machine is completely unusable for doing laundry. It serves as proof that the washing machine was not functional upon our arrival, which is part of the landlord’s failure to provide a properly habitable property.
-  > [Youtube] (https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
+  > [Youtube](https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo, "Oct 17, 2025 The washing machine was not functional upon our arrival")
   
 - Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before our arrival, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
 The refrigerator in the unit was broken, so we were unable to store any food. As a result, every meal had to be ordered from takeout. However, since the property was not fully prepared, the front entrance was locked due to ongoing construction, and the back entrance was extremely difficult to locate. Every time we ordered food, I had to go all the way down from the fourth floor and walk a long distance to meet the delivery person, which caused significant physical strain. Every step I took was painful and caused bleeding, and my pajamas were covered in blood. At times, the pain was so severe that I wanted to see a doctor. However, because the landlord left so many unresolved issues in the unit, and with multiple technicians coming to the property every day, I had no choice but to stay home to let them in. For example:
