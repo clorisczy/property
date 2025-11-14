@@ -6,7 +6,7 @@
 
 **Tenancy Period**: 15 Oct, 2025 – 15 Oct, 2026
 
-**Main Issues**: Lack of hot water, repeated fire alarm incidents, malfunctioning washer/dryer, broken refrigerator, excessive key deposit, unclean living condition, and illegal subletting.
+**Main Issues**: Lack of hot water, repeated fire alarm incidents, malfunctioning washer, broken refrigerator, excessive deposit, unclean living condition, and illegal subletting.
 
 ## Tenant’s Requests:
 
