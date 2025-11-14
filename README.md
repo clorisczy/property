@@ -173,7 +173,11 @@ I wanted to see a doctor, but the number of unresolved issues left by the landlo
 
 The problems were urgent and numerous: no hot water, the heating system not working, the washing machine unable to dispense water, the refrigerator not cooling, missing keys, curtains, and shower curtains. Despite repeatedly messaging the landlord with no response, the agent only provided a phone number and told us to contact the technician ourselves. The technician responsible for adjusting the hot water could not come immediately, and a video call failed to resolve the issue.
 
-As a result, we were forced to live for several days without heating, hot water, or a functioning washing machine. Many problems had to be solved entirely on our own."
+As a result, we were forced to live for several days without heating, hot water, or a functioning washing machine. Many problems had to be solved entirely on our own. 
+
+For the past six months, I have not had a menstrual period, and despite consulting multiple doctors, there has been no effective treatment. I am unable to conceive, my immune system is weak, and I have been taking many medications in an effort to restore my menstrual cycle. I originally believed that moving into a new home would improve my mood and help my body recover more quickly. However, I did not expect to encounter a landlord like this. Every time we have any financial or tenancy-related communication with the landlord and their agent, I become extremely upset, and the landlord has never responded to our messages. They constantly evade responsibility and instead try to find faults with us.
+
+In the face of such clear evidence, I truly do not understand what the landlord and their agent could possibly use to defend themselves. Since we moved in, so many problems have occurred, yet neither the landlord nor the agent has ever offered a single apology. They only nitpick our words, look for trivial mistakes on our side, and shift all the blame onto us. This irresponsible behaviour is extremely unacceptable and has further worsened my medical condition."
 
   > [Google Drive](https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs) — *Tenant 2: skin irritation and ulceration around the buttocks area.*
 
