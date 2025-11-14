@@ -29,7 +29,7 @@
 | **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (nearly one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning |
 | **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests. |
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
-| **Oct 29, 2025** | Fire alarm continued intermittently. | https://youtube.com/shorts/PdBEXRv8Hyg?si=sKxywcL0r1dw5Yrm
+| **Oct 29, 2025** | Fire alarm continued intermittently. | [YouTube](https://youtu.be/PdBEXRv8Hyg)
  | - |
 | **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | [Drive chat](https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz) | No repair. |
 | **Oct 15 → Oct 20, 2025** | Curtains & shower curtain missing despite lease promise; tenant bought own set. | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) | Promised fee cover |
