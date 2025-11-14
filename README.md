@@ -29,17 +29,13 @@
 | **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (nearly one week after report). Refrigerator still broken; technician rescheduled same day. | [Video](https://youtube.com/shorts/WsT4zaKCA4I) | Fridge inspected after cleaning |
 | **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests. |
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
-| **Oct 27–30, 2025** | Washer and dryer still leaking water; floor damage noted. | Photos | No inspection. |
-| **Oct 29, 2025** | Fire alarm continued intermittently. | Video | No response. |
+| **Oct 29, 2025** | Fire alarm continued intermittently. | Video | - |
 | **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | [Drive chat](https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz) | No repair. |
-| **Mid-Oct → Early Nov, 2025** | Curtains & shower curtain missing despite lease promise; tenant bought own set. | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) | No reimbursement. |
-| **Late Oct, 2025** | Garbage disposal and parking not explained until 4–5 days after move-in. | — | Provided vague verbal directions. |
-| **Oct 15–31, 2025** | Continuous poor cleanliness (despite agent claim of pre-cleaning). Socks turn black when walking inside. | [Video](https://youtube.com/shorts/rsVbJaO7fxU) | Cleaning blamed on construction dust. |
-| **Oct 15–Nov 5, 2025** | Tenant 2 experienced worsening skin infection and bleeding while handling landlord’s tasks (curtains, repairs). | [Drive evidence](https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs) | No response; agent told tenant to call technicians. |
-| **Oct 17–23, 2025** | Refrigerator broken → food spoiled and take-out expenses incurred (CAD 1,043 + 1,051). | [Drive 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm), [Drive 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) | No reimbursement. |
-| **Nov 1–5, 2025** | Continued sleep disruption from fire alarm; tenant developed heart palpitations and hair loss. | [Medical report](https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view) | No response. |
-| **Nov 6, 2025** | Tenant found evidence of illegal subletting in building. | Witness | No response. |
-| **Nov 7–10, 2025** | Tenants developed psychological distress and health issues due to ongoing problems. | Statements | — |
+| **Oct 15 → Oct 20, 2025** | Curtains & shower curtain missing despite lease promise; tenant bought own set. | [Receipt](https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view) | Promised fee cover |
+| **Oct 15–20, 2025** | Continuous poor cleanliness (despite agent claim of pre-cleaning). Socks turn black when walking inside. | [Video](https://youtube.com/shorts/rsVbJaO7fxU) | Cleaning blamed on construction dust. |
+| **Oct 15–Nov 5, 2025** | Tenant 2 experienced worsening skin infection and bleeding while handling landlord’s tasks (curtains, repairs). | [Drive evidence](https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs) | No response |
+| **Oct 17–23, 2025** | Refrigerator broken → food spoiled and take-out expenses incurred (CAD 1,043 + 1,051). | [Drive 1](https://drive.google.com/drive/folders/1hrvvj5B5zzN8MNwE3pHOdGIJ8sZMFxpm), [Drive 2](https://drive.google.com/drive/folders/1KgGDhnf3xaPKO9VOuKP3w3rirdoaTlgC) | - |
+| **Oct 17 till now, 2025** | Tenants developed psychological distress and health issues due to ongoing problems. | Statements | — |
 
 
 
