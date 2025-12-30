@@ -27,7 +27,7 @@
 | **Oct 20, 2025 (09:17–10:33)** | Fire alarm continued going off for two hours intermittently (6 videos recorded). | Video | Office again refused help; said “Call 911.” |
 | **Oct 20, 2025 (18:00)** | Technician appointment for fridge allegedly “refused”; actually postponed because rotting food required cleaning. | Chat logs | Agent blamed tenant; later admitted reschedule. |
 | **Oct 21, 2025 (09:00)** | Cleaning staff finally arrived (nearly one week after report). Refrigerator still broken; technician rescheduled same day. | https://youtube.com/shorts/WsT4zaKCA4I | Fridge inspected after cleaning |
-| **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests. |
+| **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests utill one month ago.|
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
 | **Oct 29, 2025** | Fire alarm continued intermittently. | https://youtu.be/PdBEXRv8Hyg| - |
 | **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz | No repair until two months after moving.|
@@ -90,8 +90,10 @@ We will attach screenshots of the takeout orders and the estimated value of the 
 
   Our living room is already quite small, and now there are two fridges taking up the limited space. These two fridges have been sitting in our living room for three weeks, and we still haven’t received any reply about when they will be removed.
 
+Update: On 26 November,2025, the refrigerator issues were finally resolved. 
+
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
-When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
+When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. **They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.**
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help. 
   > (https://youtube.com/shorts/85dstiDAPgA?si=XiRV5WCob0gWh_pv) — *Oct 17, 2025 23:31 Fire alarm kept going off for no reason. We called the landlord but no response.*
 
@@ -114,6 +116,8 @@ On the next day, when the smoke alarm went off again for no reason, we contacted
 
 - Parking: We were not informed where the parking space is. The lease states that a parking space is included, but it was not ready. We were told to use visitor parking, but we don’t know where that is. After several follow-ups from my agent, the landlord’s agent eventually mentioned that we could park in a temporary parking lot, but he never provided the exact location. We were unable to locate the temporary parking area, and neither the landlord nor the landlord’s agent came to show us where to park. They themselves did not know the exact location and only showed me a screenshot of the email sent by the management office.
 Furthermore, on the day of move-in, neither the landlord nor the landlord’s agent came to meet us or give us a walkthrough of the property. Instead, they simply left the keys in a location for us to pick up on our own.
+
+Update: Finally, on 2 December 2025, we got the parking spot number and received the garage fob.
   
 - Cleanliness: The property was not properly cleaned. When we moved in, our socks turned black just from walking inside. The landlord’s agent told us that the property had been thoroughly cleaned before we moved in. However, when we entered, the floors were covered with dust. The landlord’s agent explained that the dust was due to the ongoing construction outside, which they said was normal. I can understand there being some dust, but I don’t believe there would be this much dust inside with all the windows closed if the place had truly been cleaned recently. Regarding the cleaning issue, we reported this problem to the landlord’s agent on October 15, the day we moved in. However, the cleaning staff did not arrive until October 21.
   > https://youtube.com/shorts/rsVbJaO7fxU?si=Z-BmlQo1o4T9e7iV — *Socks turn black due to poor cleaning condition.*
@@ -133,16 +137,16 @@ Attached below is the receipt for the shower curtain, and the cost should be rei
 
 - Package/parcel delivery: We were not informed how to receive packages, what address to use, or how to pick them up. This is the landlord’s responsibility to explain to tenants in advance.
 
-- Floor damage: One section of the floor is damaged — when we step on it, it makes a loud creaking noise, which is very concerning and could indicate a structural problem.
+- Floor damage: One section of the floor is damaged — when we step on it, it makes a loud creaking noise. 
 
-- Sensor light: On October 31, 2025, I reported that the sensor light in the fourth-floor bedroom wardrobe has been constantly on. I sent messages to both the landlord and the agent. The landlord replied only once, telling me not to message him again. The agent said they would help me fix the issue, but they have been delaying it and have not taken any action. I sent several follow-up messages, but they only replied to one of them.
+- Sensor light: According to one of the tenants, "On October 31, 2025, I reported that the sensor light in the fourth-floor bedroom wardrobe has been constantly on. I sent messages to both the landlord and the agent. The landlord replied only once, telling me not to message him again. The agent said they would help me fix the issue, but they have been delaying it and have not taken any action. I sent several follow-up messages, but they only replied to one of them.
 The bedroom light has been on all the time, which not only wastes electricity but also seriously affects my sleep. I’ve been struggling with severe insomnia for a long time — I often can’t fall asleep until 5 or 6 a.m. Because of this light, I have to cover it with paper just to block the brightness. It’s having a serious impact on my health and weakening my immune system.
-We’ve been very good tenants and never bother the landlord unnecessarily. We always try to solve small issues on our own. However, the landlord’s attitude has been extremely poor. He refuses to take responsibility and even lied to us — first saying he was abroad and couldn’t respond, then saying he would come to fix the issue, but later claiming he couldn’t come and could only use Zoom instead. In fact, the only direct message we ever received from the landlord was the one telling us not to contact him; all other communication has been relayed through his agent.
+We’ve been very good tenants and never bother the landlord unnecessarily. We always try to solve small issues on our own. However, the landlord’s attitude has been extremely poor. He refuses to take responsibility and even lied to us — first saying he was abroad and couldn’t respond, then saying he would come to fix the issue, but later claiming he couldn’t come and could only use Zoom instead. In fact, the only direct message we ever received from the landlord was the one telling us not to contact him; all other communication has been relayed through his agent."
   > https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz — *The chat with the agent and the landlord about the broken sensor light in the closet of the fourth-floor bedroom.*
 
   > https://drive.google.com/drive/folders/124MI_mifczwraK39-yxdYhnd2X8-xw6Z — *The chat with the agent about the light.*
 
-***More importantly, the landlord collected a three-month security deposit from us, which is also a violation of the law.***
+***More importantly, the landlord collected a three-month deposit from us.***
 
 ## Personal and Health Impact
 ### Tenant 1
