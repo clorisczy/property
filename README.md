@@ -222,4 +222,7 @@ These expenses were directly caused by the refrigerator issue and should therefo
 
   > https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk — *Receipt for keys.*
 
+## Final Friendly Chat with the Agent and Landlord before we ask LTB for help
+We really want to resolve the issues and make a deal but no reponse to our reasonable advice.
+  > https://drive.google.com/drive/folders/1F1YGzd0KVA2nwE1zSKsJDD-Z1JytQSam
 
