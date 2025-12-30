@@ -20,7 +20,7 @@
 | **Date** | **Event Description** | **Evidence / Link** | **Landlord / Agent Response** |
 |-----------|----------------------|----------------------|--------------------------------|
 | **Oct 17, 2025** | Move-in day: no hot water, no curtain and shower curtain. AC，refrigerator and heating not working, unit dirty, only one key provided instead of three. | Photos&Videos | No on-site inspection; keys left for self-pickup. |
-| **Oct 17, 2025 (Evening)** | First night of menstrual period with no hot water; tenant forced to wash with cold water, became ill next day. | Tenant 1 statement | No resolution on that night. |
+| **Oct 17, 2025 (Evening)** | First night of menstrual period with no hot water; tenant forced to wash with cold water when moving in.| Tenant 1 statement | Being asked to wait for repairing next morning. |
 | **Oct 17, 2025** | Multiple requests to fix hot water and heating; washing machine still non-functional (no water). | https://youtu.be/DW_nqCBtrLU | Promised plumber visit but only next day morning. |
 | **Oct 17, 2025 23:31** | Fire alarm began sounding for no reason at night. | https://youtube.com/shorts/85dstiDAPgA | No response from landlord. |
 | **Oct 18–19, 2025** | Tenant office contacted about fire alarm; office stated unit was *not legally rentable* and refused help. | Call record summary | Told to “contact lawyer and sue landlord.” |
@@ -30,7 +30,7 @@
 | **Oct 23, 2025** | Temporary refrigerator delivered; old broken one left in living room and never removed. | Chat logs | No response to removal requests. |
 | **Oct 24–25, 2025** | Tenant requested partial refund / relocation due to unsafe conditions. | Message logs | Ignored. |
 | **Oct 29, 2025** | Fire alarm continued intermittently. | https://youtu.be/PdBEXRv8Hyg| - |
-| **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz | No repair. |
+| **Oct 31, 2025** | Sensor light in 4th-floor wardrobe stuck on; tenant reported it; landlord replied “Don’t message me again.” | https://drive.google.com/drive/folders/1uNgzZnMci8yx0zuxeloNLzlJ51-fjPCz | No repair until two months after moving.|
 | **Oct 15 → Oct 20, 2025** | Curtains & shower curtain missing despite lease promise; tenant bought own set. | https://drive.google.com/file/d/1TSVNXV8_Kl0zIjZwKWbQOQ4RFim6FvVS/view | Promised fee cover |
 | **Oct 15–20, 2025** | Continuous poor cleanliness (despite agent claim of pre-cleaning). Socks turn black when walking inside. |https://youtube.com/shorts/rsVbJaO7fxU | Cleaning blamed on construction dust. |
 | **Oct 15–Nov 5, 2025** | Tenant 2 experienced worsening skin infection and bleeding while handling landlord’s tasks (curtains, repairs). | https://drive.google.com/drive/folders/11ddFauje98mpyTyEMnCXSu6wY28FkWrs | No response |
@@ -54,7 +54,7 @@
 
 
 ## Detailed Description of Issues
-- Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly. There are three tenants living in this unit. One of the female tenants was on her menstrual period and suffering from severe menstrual pain. The heating system was not working, and the unit was freezing cold. In addition, there was no hot water available for showering. Another female tenant had a bleeding wound near her lower body and was unable to walk properly, yet she still had to take on tasks that should have been handled by the landlord or the landlord’s agent. The third tenant is a male, but he works full-time in an office from 10 a.m. to 11 p.m. every day, so he is not at home during the day. As a result, only the two female tenants were left to deal with the issues that the landlord failed to address.
+- Air conditioning: The AC was not properly set up before we moved in. It should have been functional and able to provide heating, but it was not working properly. There are three persons living in this unit. One of the female tenants was on her menstrual period and suffering from severe menstrual pain. The heating system was not working, and the unit was freezing cold. In addition, there was no hot water available for showering. One of the female tenant had a bleeding wound near her lower body and was unable to walk properly, yet she still had to take on tasks that should have been handled by the landlord or the landlord’s agent. The third tenant is a male, but he works full-time from 10 a.m. to 11 p.m. every day, so he is not at home during the day. As a result, only the two female tenants were left to deal with the issues that the landlord failed to address.
   
 - Hot water: On the date we moved in, there was no hot water available for showers, although it should have been ready. 
     
@@ -62,7 +62,9 @@
   > https://youtu.be/DW_nqCBtrLU?si=M6EE8u_NpxhiqbsZ, https://youtube.com/shorts/UWzYMTqjg74?si=Rq1gd6kpJbCqIVlo — *Oct 17, 2025: The washing machine was not functional upon our arrival* 
   
 - Refrigerator: The fridge was not adjusted and not cooling when we arrived, which caused all our food to spoil. This resulted in the loss of food and health products worth over a thousand dollars. The following videos show that the refrigerator was already broken before our arrival, causing all the food inside to spoil and emit a strong, foul odor. The smell was so bad that the cleaning staff felt nauseous.
-The refrigerator in the unit was broken, so we were unable to store any food. As a result, every meal had to be ordered from takeout. However, since the property was not fully prepared, the front entrance was locked due to ongoing construction, and the back entrance was extremely difficult to locate. Every time we ordered food, I had to go all the way down from the fourth floor and walk a long distance to meet the delivery person, which caused significant physical strain. Every step I took was painful and caused bleeding, and my pajamas were covered in blood. At times, the pain was so severe that I wanted to see a doctor. However, because the landlord left so many unresolved issues in the unit, and with multiple technicians coming to the property every day, I had no choice but to stay home to let them in. For example:
+The refrigerator in the unit was broken, so we were unable to store any food. As a result, every meal had to be ordered from takeout. However, since the property was not fully prepared, the front entrance was locked due to ongoing construction, and the back entrance was extremely difficult to locate. Every time we ordered food, we had to go all the way down from the fourth floor and walk a long distance to meet the delivery person, which caused unnecessary physical strain. According to one of the girls's statement,
+
+"Every step I took was painful and caused bleeding, and my pajamas were covered in blood. At times, the pain was so severe that I wanted to see a doctor. However, because the landlord left so many unresolved issues in the unit, and with multiple technicians coming to the property every day, I had no choice but to stay home to let them in. For example:
 	1.	Curtain installation: I had to call, take photos myself and send them to the agent, schedule the measurement, and then coordinate the installation.
 	2.	Cleaning: I had to arrange the cleaning schedule, let the cleaners in, and inspect the cleaning from the first to the fourth floor.
 	3.	Refrigerator repair: I had to coordinate the technician’s visit, but initially the refrigerator was not repaired. Then we had to wait for the landlord to arrange a new refrigerator to be installed.
@@ -74,7 +76,7 @@ The landlord’s agent repeatedly tried to shift responsibility onto us, claimin
   The landlord’s agent stated that he and the landlord would come to assist us at the management office to resolve these issues. However, the next day they decided not to come and instead only wanted to have a phone call with us. In any case, they never came on-site to help us resolve the problems. I now demand that the landlord reimburse us for:
 	1.	The cost of spoiled food; and
 	2.	The takeout expenses incurred during the days without a working refrigerator.
-  I will attach screenshots of the takeout orders and the estimated value of the spoiled food below. The link below also shows my lower-body wound and the blood-stained pajamas I was wearing.
+We will attach screenshots of the takeout orders and the estimated value of the spoiled food below. The link below also shows my lower-body wound and the blood-stained pajamas I was wearing."
 
   > https://youtube.com/shorts/2ni4rDrIvTs?si=XaVC7T_RdlbYTiqu — *According to the cleaning staff, the refrigerator was out of order and could not keep food cold.*
 
@@ -87,6 +89,7 @@ The landlord’s agent repeatedly tried to shift responsibility onto us, claimin
   When we first moved in, the refrigerator was already broken. On the 23rd, the landlord sent us a temporary fridge. However, the old broken one has been left in our living room ever since. We have asked the landlord several times to remove it, but he hasn’t responded.
 
   Our living room is already quite small, and now there are two fridges taking up the limited space. These two fridges have been sitting in our living room for three weeks, and we still haven’t received any reply about when they will be removed.
+
 - Smoke alarm: The smoke alarm is broken and goes off frequently for no reason. It has been sounding intermittently for about two hours every morning for the past four or five days, seriously disturbing our sleep. We have video evidence of this issue.
 When the alarm first went off, we called the landlord but got no response and then we called the tenant office, but they told us to contact a lawyer and sue the landlord, because this unit is not legally allowed to be rented out. They said they were not responsible and did not understand why we were able to move in, since parts of this building are not permitted for rental use — meaning the landlord illegally rented the property to us.
 On the next day, when the smoke alarm went off again for no reason, we contacted the tenant office once more, asking them to fix the issue. However, they told us, “If you have a problem, you should call 911.” They refused to take any responsibility or provide any help. 
