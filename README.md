@@ -12,7 +12,7 @@
 
 **Financial Compensation**: Reimbursement of documented expenses totaling CAD 2,248.85 for direct financial losses (food spoilage, take-out meals, transportation, cleaning supplies, and other related costs).
 
-**Additional Compensation**: Refund equivalent to at least three months of rent, together with reasonable compensation for psychological distress resulting from unsafe living conditions and continuous disruptions.
+**Additional Compensation**: Refund equivalent to at least three months of rent, together with reasonable compensation resulting from unsafe living conditions and continuous disruptions.
 
 ## Timeline Summary
 ### 🕓 Timeline of Events
