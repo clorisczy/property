@@ -147,23 +147,23 @@ We’ve been very good tenants and never bother the landlord unnecessarily. We a
 ## Personal and Health Impact
 ### Tenant 1
 
-"The unsafe living conditions, particularly the continuous malfunction of the smoke alarm, have had a severe and escalating impact on my physical and mental health.
+"The unsafe living conditions, particularly the continuous malfunction of the smoke alarm, have had a severe impact on my physical and mental health.
 
-For the past several days, the smoke alarm has been going off almost every morning between 9:00 and 11:00 AM, lasting intermittently for one to two hours. This problem has persisted for nearly a week. I have a pre-existing medical condition, myocarditis (heart inflammation), and I already struggle with sleep irregularities due to academic stress.
+For the past several days, the smoke alarm has been going off almost every morning between 9:00 and 11:00 AM, lasting intermittently for one to two hours. This problem has persisted for many days. I have a pre-existing sleeping isssue and I already struggle with sleep irregularities due to academic stress.
 
 During the first two days, I tried to tolerate the situation. However, from the third day onward, I began to experience anticipatory anxiety — knowing that the alarm would go off again around the same time caused extreme tension throughout the night. I became unable to fall asleep, constantly waiting for the noise to start. This mental strain triggered palpitations, nervous weakness, and insomnia, worsening my physical condition.
 
-As a result, I have not had a full night of proper sleep for several days. My heart condition has been aggravated, my mind often feels unclear and disoriented, and I have experienced significant hair loss due to prolonged stress. I have been using Minoxidil (Rogaine) to restore my hair before, but the recent situation has caused a severe setback, undoing months of progress.
+As a result, I have not had a full night of proper sleep for several days. I have experienced significant hair loss due to prolonged stress. I have been using Minoxidil (Rogaine) to restore my hair before, but the recent situation may cause a setback.
 
 In addition, I want to emphasize that these poor living conditions have also had a serious impact on my physical health as a woman.
 
-On the first evening after I moved in, it happened to be the first day of my menstrual period. I always experience severe menstrual cramps on the first day, accompanied by heavy bleeding. However, because there was no hot water in the unit at that evening, I could only use cold water to wash. As a result, my body temperature dropped, and I became sick the following day — I was in so much pain that I could not get out of bed for the entire day.
+On the first evening after I moved in, it happened to be the first day of my menstrual period. I always experience severe menstrual cramps on the first day, accompanied by heavy bleeding. However, because there was no hot water in the unit at that evening, I could only use cold water to wash some parts of my body.
 
-Moreover, I have acid reflux (gastroesophageal reflux disease) and must eat clean, freshly prepared food. Normally, I cook for myself to manage my diet. But since the refrigerator was broken and could not keep food fresh, I was unable to buy or store meat, eggs, or vegetables. For the past several days, I have been forced to rely on takeout meals, which are oily and unhealthy. Because of this, my stomach condition has worsened again, and I am now experiencing frequent discomfort and indigestion.
+Moreover, I have acid reflux (gastroesophageal reflux disease) and must eat clean, freshly prepared food. Normally, I cook for myself to manage my diet. But since the refrigerator was broken and could not keep food fresh, I was unable to buy or store meat, eggs, or vegetables. For the past several days, I have been forced to rely on takeout meals, which are oily and unhealthy. 
 
-This ongoing situation has made it impossible for me to rest, focus, or study effectively. Consequently, I was unable to perform well in my academic assessments and failed one of my courses during this period.
+This ongoing situation has made it impossible for me to rest, focus, or study effectively. 
 
-The persistent noise, psychological distress, and health deterioration are direct results of the landlord’s negligence and the uninhabitable condition of the property. This is no longer a matter of minor inconvenience but a serious violation of my right to live in a safe, peaceful, and healthy environment."
+The persistent noise, psychological distress, and health deterioration are partly related to the landlord’s negligence and the uninhabitable condition of the property. This is no longer a matter of minor inconvenience but a violation of my right to live in a safe, peaceful, and healthy environment."
 
   > https://drive.google.com/file/d/1xtO76O72sDzNlR2OZk4k0OuBGQHTxdSh/view?usp=drivesdk — *Gastroscope Report diagnosed as GERD.*
 
@@ -218,15 +218,4 @@ These expenses were directly caused by the refrigerator issue and should therefo
 
   > https://drive.google.com/file/d/1W3Ecq1WuvHFUt_bVcz-7oQ6R_E8l37Ai/view?usp=drivesdk — *Receipt for keys.*
 
-## Legal Basis (Ontario Residential Tenancies Act, 2006)
-
-Section 20 – Maintenance Obligation: The landlord must maintain the rental unit in a good state of repair and fit for habitation.
-
-Section 21 – Vital Services: The landlord must ensure heating, plumbing, hot water, and appliances are operational.
-
-Section 134 – Prohibited Charges: The landlord cannot demand deposits or charges beyond what the Act allows.
-
-Section 29(1) – Tenant Remedies: Tenants may apply to the LTB for compensation or orders when the landlord fails to meet obligations.
-
-Section 33 – Interference with Reasonable Enjoyment，
 
